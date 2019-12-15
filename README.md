@@ -6,3 +6,4 @@
 ![IMG](bantin.JPG)
 
 ![IMG](tacgia.JPG)
+Vì thời gian có hạn nên có một số phần em chưa làm xong mong thầy thông cảm!
